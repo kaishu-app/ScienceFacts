@@ -5,3 +5,5 @@
 4. At over 2,000 kilometers long, The Great Barrier Reef is the largest living structure on Earth.
 5. There are 8 times as many atoms in a teaspoonful of water as there are teaspoonfuls of water in the Atlantic ocean.
 6. In an entire lifetime, the average person walks the equivalent of five times around the world.
+7. There are actually over two dozen states of matter (that we know of).
+8. Killer whales are actually dolphins.
