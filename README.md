@@ -7,3 +7,5 @@
 6. In an entire lifetime, the average person walks the equivalent of five times around the world.
 7. There are actually over two dozen states of matter (that we know of).
 8. Killer whales are actually dolphins.
+9. Grasshoppers have ears in their bellies.
+10. You can’t taste food without saliva.
